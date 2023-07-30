@@ -1,3 +1,0 @@
-ASUS
-DESKTOP-F101MS5 
-lunes, 24 de julio de 2023  12:44:12
